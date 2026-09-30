@@ -67,7 +67,7 @@ share their professional information through NFC and QR technology.
 
 **Instagram:** [@gjnexora](https://www.instagram.com/gjnexora/)
 
-**LinkedIn:** [GJ Nexora Technologies](https://linkedin.com/in/gj-nexroa-tech)
+**LinkedIn:** [GJ Nexora Technologies](https://www.linkedin.com/in/gj-nexora-tech/)
 
 ---
 
